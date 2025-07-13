@@ -1,4 +1,4 @@
-### Aromatherapy Summit Interview
+### Practitioner Interview Archive
 **Speaker:** Salvatore Battaglia  
 **Interviewer:** Elizabeth Ashley (The Secret Healer)  
 **Curator:** Gergely Hollódi  
